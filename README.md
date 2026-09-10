@@ -7,7 +7,7 @@ Inspiration off my ponies is fine, just don't copy 1 to 1 my colours or designs,
 
 I like JJBA + my OCs, and a lot more. 50/50 of my interests would be rated 18+ so I won't list any of those.
 
-I have undiagnosed autism (hopefully getting diagnosed this year!), and possibly ADHD, as well as anxiety, depression and hypersexual. sometimes I will not pick up on your tone but you do not need to do /s /j /ect. I am recovering from stomach issues and now cramps from first day of college! so please be patient with my brain.
+I have undiagnosed autism (hopefully getting diagnosed this year!), and possibly ADHD, as well as anxiety, depression and hypersexual. sometimes I will not pick up on your tone but you do not need to do /s /j /ect. I am recovering from stomach issues, so please be patient with my brain.
 
 I don't care what you ship or what your headcanons are for characters as long as they aren't illegal, weirdly.. unnecessary (e.g making a character a pedophile or aging up to ship with older characters, or shipping characters under the age of 10) , darkshipping or you're forcing it onto someone else.
 
