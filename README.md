@@ -11,5 +11,4 @@ I have undiagnosed autism (hopefully getting diagnosed this year!), and possibly
 
 I don't care what you ship or what your headcanons are for characters as long as they aren't illegal, weirdly.. unnecessary (e.g making a character a pedophile or aging up to ship with older characters, or shipping characters under the age of 10) , darkshipping or you're forcing it onto someone else.
 
-Other boundaries would be, I can be awkward about any 'doubles dni' or 'non-sharing' since to me no one gets to act like this over a character unless its their own, but I respect you. PLEEAAASE don't judge music tastes immaturely or mock people harshly for what they like, UNLESS its actual problematic weird stuff (e.g MSI/Jimmy Urine/or AI music)
-
+Other boundaries would be, I can be awkward about any 'doubles dni' or 'non-sharing' since to me no one gets to act like this over a character unless its their own, but I respect you. PLEEAAASE don't judge music tastes immaturely or mock people harshly for what they like, UNLESS its actual problematic weird stuff (e.g MSI/Jimmy Urine/or AI music),I also have zero interest in mild arguments on this game so I'll usually just ignore it when you tell me some minor incident like I'm sorry but I don't really have any interest if someone called you a needle noggin or smth,unless its an serious issue
