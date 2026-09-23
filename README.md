@@ -1,6 +1,8 @@
 14+ years old, he/him, college student in the UK, I play ponytown usually anywhere after 9:00pm or 9:30pm or early morning 12:30pm 
 
-Don't interact with me if you're a proshipper/darkshipper I see you guys as predators. get help and stay away, I don't care about antiharassment, thats all YOUR fault if you get shamed or harassed, you choose to expose it on here to children, you don't have my sympathy. | racist/whitewashing/or you believe in blackwashing(I only believe its wrong to make a white person POC if its done racially motivated) | sexist | LGBTQ+ phobic | rad queer | endo systems | Zoophilla/Pedophilla/Necrophilla | stereotyping; countries/accents/mental illnesses/LGBTQ+ | 21+ and -12 | rape/sa/pedo/selfharm jokes | Hazbin Hotel / Helluva Boss | trump supporters ect ect | C.AI / Polybuzz.ai or any AI chat bot users | or you defend/support/befriend people who are problematic. 
+Don't interact with me if you're a proshipper/darkshipper I see you guys as predators. get help and stay away, I don't care about antiharassment, thats all YOUR fault if you get shamed or harassed, you choose to expose it on here to children, you don't have my sympathy. 
+
+DNI list ; | racist/whitewashing/or you believe in blackwashing(I only believe its wrong to make a white person POC if its done racially motivated) | sexist | LGBTQ+ phobic | rad queer | endo systems | Zoophilla/Pedophilla/Necrophilla | stereotyping; countries/accents/mental illnesses/LGBTQ+ | 21+ and -12 | rape/sa/pedo/selfharm jokes | Hazbin Hotel / Helluva Boss | trump supporters ect ect | C.AI / Polybuzz.ai or any AI chat bot users | or you defend/support/befriend people who are problematic. 
 Don't make sexual comments towards me UNLESS you are a close friend or have been allowed to
 
 Inspiration off my ponies is fine, just don't copy 1 to 1 my colours or designs,
