@@ -1,4 +1,4 @@
-14+ years old, he/him, college student in the UK, I play ponytown usually anywhere after 9:00pm or 9:30pm or early morning 12:30pm 
+14+ years old, he/him, college student in the UK, I play ponytown usually anywhere after 6:00pm or 9:30pm or early morning 12:30pm 
 
 Don't interact with me if you're a proshipper/darkshipper I see you guys as predators. get help and stay away, I don't care about antiharassment, thats all YOUR fault if you get shamed or harassed, you choose to expose it on here to children, you don't have my sympathy. 
 
