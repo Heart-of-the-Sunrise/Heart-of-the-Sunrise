@@ -18,4 +18,4 @@
 
 <sup> Anyone else you can interact freely! :) </sup>
 
-If you want to see me I'm on after 10am -> 12:30pm or 9:30pm -> 12am (BST/GMT)
+<sup>Time zone; (BST/GMT)</sup> If you want to see me I'm on.. uh.. at any time after 12:00pm <br/><sup> or best time if you 100% want a chance to see me = 09:30pm </sup> 
