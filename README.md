@@ -1,6 +1,5 @@
 #### 15+ .. He / Him <sup> (Strictly) </sup>	 { into art, character + fashion designing and music
 <br/>
-<sup>!@BLOODY-STREAM is my other account on github!</sup>
 
 ### DNI { DO NOT INTERACT 
 
