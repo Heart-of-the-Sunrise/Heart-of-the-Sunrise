@@ -1,4 +1,4 @@
-#### 15+ .. He / Him <sup> (Strictly) </sup>	 { into art, character + fashion designing and music
+#### 15+ .. He / Him <sup> (Strictly) </sup> { into art, character + fashion designing, music, dark fantasy and D&D
 <br/>
 
 ### DNI { DO NOT INTERACT 
